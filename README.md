@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sanyvukl
+- 👋 Hi, I’m @sanyavukl
 - 👀 I’m interested in front-end development
 - 🌱 I’m currently learning JS
 - 💞️ I’m looking to collaborate on Google
