@@ -4,5 +4,5 @@
 - 💞️ I’m looking to working in a team
 - 📫 How to reach me:
 -  Email : sanyavukl@gmail.com
--  Phone: +1(279
+-  Phone: +1(279)-200-2818
 
